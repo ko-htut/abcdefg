@@ -10,7 +10,7 @@ Mar 6 2022
 
 **Privacy Policy**
 
-OvO Gods built the OvO Vpn app as a Free app. This SERVICE is provided by OvO Gods at no cost and is intended for use as is.
+Thai 2d Stock built the OvO Vpn app as a Free app. This SERVICE is provided by Thai 2d Stock at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
